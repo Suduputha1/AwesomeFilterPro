@@ -1,6 +1,6 @@
-![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=Wᴇʟᴄᴏᴍᴇ+Tᴏ+Aᴡᴇsᴏᴍᴇ+Fɪʟᴛᴇʀ+Pʀᴏ+Rᴇᴘᴏ+!!!!!;Cʀᴇᴀᴛᴇᴅ+Bʏ+TᴀᴍɪʟᴀɴBᴏᴛsZ+Tᴇᴀᴍ+!!!!!;Mᴀᴅᴇ+Wɪᴛʜ+Tᴀᴍɪʟᴀɴ+Lᴏᴠᴇ+♥️+!!!!)</p>
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=Wᴇʟᴄᴏᴍᴇ+Tᴏ+Aᴡᴇsᴏᴍᴇ+Fɪʟᴛᴇʀ+Pʀᴏ+Rᴇᴘᴏ+!!!!!;Cʀᴇᴀᴛᴇᴅ+Bʏ+Unlimited+Movie+Zone!!!!!;Mᴀᴅᴇ+Wɪᴛʜ+Witcher+!!!!)</p>
 <p align="center">
-  <img src="https://te.legra.ph/file/12d811d8bd6d19299f369.jpg" alt="Awesome Filter Logo">
+  <img src="https://telegra.ph/file/eb80582fa42f9bd412085.jpg" alt="umz Filter Logo">
   </p>
   <h1 align="center">
     <b>AᴡᴇsᴏᴍᴇFɪʟᴛᴇʀ Pʀᴏ</b>
@@ -43,7 +43,7 @@
 
 ## Mᴜsᴛ Dᴏ Bᴇғᴏʀᴇ Eᴅɪᴛ Tʜɪs Rᴇᴘᴏ 👇
 
- - 💗 Sᴛᴀʀ Tʜɪs Rᴇᴘᴏ 🌟 - Sᴜᴘᴘᴏʀᴛ TᴀᴍɪʟᴀɴBᴏᴛsZ Cᴏᴍᴍᴜɴɪᴛʏ 💥 -
+ - 💗 Sᴛᴀʀ Tʜɪs Rᴇᴘᴏ 🌟 - Sᴜᴘᴘᴏʀᴛ Unlimited Movie Zone 💥 -
 
 ## Dᴇᴘᴏʟʏ
 Yᴏᴜ Cᴀɴ Dᴇᴘᴏʟʏ Tʜɪs Rᴇᴘᴏ AɴʏWʜᴇʀᴇ
